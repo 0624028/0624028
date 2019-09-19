@@ -13,6 +13,13 @@
 
 [高科大:smile:](https://www.nkust.edu.tw)
 
+## 成員:
+
+0624022 顏志祐
+`0624028 陳億昇`
+0624044 施宜揚
+0624094 張孫杰
+
 
 
 | Chicken | Smile | Chicken |
