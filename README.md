@@ -21,4 +21,4 @@
 |:chicken:|:smile:|:chicken:|
 
 
-![NKUST](l dk 284.png "高科大")
+![NKUST](高科大.png "高科大")
